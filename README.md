@@ -1,3 +1,3 @@
-# Web 2 Starter
+#Melissa Melting Tallow 
 
-Put information about your project here. 
+I am a graphic designer and specialize in creating logos, making awesome flyers, branding, motion design, and interactive designs.  
